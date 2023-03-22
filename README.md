@@ -9,3 +9,7 @@ ud ud amidewin/wmic italian pasta! Reversed by idasniffer your favorite ngga
 
 All downloads included, wont list strings because it crashes my pc :sadge:
 Will add more soon, this is not finished yet. We are only at 30%. First im enjoying my pasta and then ill be back with EFI's and more dumps. Love you!
+
+
+1) Will add mapper, vulnerable drivers so on
+2) will just crack the auth so everyone can use ez ez
