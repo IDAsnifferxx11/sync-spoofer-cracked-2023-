@@ -1,2 +1,2 @@
 # sync-spoofer-cracked-2023-
-ud ud amidewin/wmic italian pasta!
+ud ud amidewin/wmic italian pasta! Reversed by idasniffer baby
