@@ -8,4 +8,4 @@ ud ud amidewin/wmic italian pasta! Reversed by idasniffer your favorite ngga
 4) Mapper downloads to temp folder and gets deleted
 
 All downloads included, wont list strings because it crashes my pc :sadge:
-Will add more soon, this is not finished yet. We are only at 30%. First im enjoying my pasta and then ill be back with EFI's and more.
+Will add more soon, this is not finished yet. We are only at 30%. First im enjoying my pasta and then ill be back with EFI's and more dumps. Love you!
