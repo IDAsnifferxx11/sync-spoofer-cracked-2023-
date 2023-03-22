@@ -14,4 +14,4 @@ Will add more soon, this is not finished yet. We are only at 30%. First im enjoy
 1) Will add mapper, vulnerable drivers so on
 2) will just crack the auth so everyone can use ez ez
 
-Keep watching this repo! Everything will be here very very soon. Allah. For now, enjoy the downloads, if your pro pro paster you can do something funny with it. 
+Keep watching this repo! Everything will be here very very soon. Allah. For now, enjoy the downloads, if your pro pro paster you can do something funny with it. Oh btw, his support is shit and he doesn't refund customers.
